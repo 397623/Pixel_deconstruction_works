@@ -1,1 +1,1 @@
-Pixel paintings deconstructed from the animated Lucky Star
+从幸运星中解构出的像素画
